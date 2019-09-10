@@ -4,6 +4,6 @@
 2. Jika NIM Kalian Tidak Ada di Daftar Folder, Silahkan Hubungi Asisten Masing - Masing
 
 
-# Minggu 1
+# Tugas Praktikum 1
 
 ON GOING
